@@ -1,5 +1,5 @@
 <p align="center">
-![](https://komarev.com/ghpvc/?username=requivm&color=blue)
+<![](https://komarev.com/ghpvc/?username=requivm&color=blue)>
 </p>
 
 <p align="center">
