@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=requivm&color=464D4B" alt="𝓥isitors" />
+  <img src="https://komarev.com/ghpvc/?username=requivm&label=Visitors&color=blue&style=flat-square" />
 </p>
+
 
 
 <p align="center">
