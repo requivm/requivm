@@ -5,3 +5,5 @@
 <p align="center">
   <img src="https://i.postimg.cc/pVqdmZP0/Untitled827-20261002215909.png" width="400" />
 </p
+
+it wont go on the center im upset
