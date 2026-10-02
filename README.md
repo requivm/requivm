@@ -5,7 +5,7 @@
   
 
 <p align="center">
-  <img src="https://img.shields.io/badge/𝓥isitor𝓼-000000?style=flat-square&labelColor=E60073" width="100" />
+  <img src="https://img.shields.io/badge/𝓥isitor𝓼-000000?style=flat-square&labelColor=000000" width="100" />
 </p>
 
 wip, if you're seeing this, im working on it right now
