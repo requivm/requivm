@@ -8,7 +8,7 @@
   <b>ഒ·˚</b><br>
  ꒰꒰ㅤ𝒅arcyㅤₒᵤㅤ𝒄urrentㅤ𝒂vatarㅤ𝒏ame  <br>
   word word word word<br>
-  word word word word
+  (  🪽  )ㅤ ♡ㅤ𝐳ombi𝐞 && 𝐜owboy 𝐦edia 𝐞𝐧joye𝐫
 </p>
 
 WORKING ON IT 
