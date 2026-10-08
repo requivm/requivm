@@ -6,7 +6,7 @@
   <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170" align="left">
 
   <b>ഒ·˚</b><br>
-  working on this<br>
-  as you see it<br>
-  give me a sec
+  ⓘ⠀c+h⠀alright⠀always⠀♡ <br>
+  word word word word<br>
+  word word word word
 </p>
