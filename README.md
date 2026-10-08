@@ -5,5 +5,3 @@
 <p align="center">
   <img src="hhhhhhhhhhhhhhhh" width="400" />
 </p
-
-it wont go on the center im upset
