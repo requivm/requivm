@@ -3,5 +3,5 @@
 </p
 
 <p align="center">
-  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="400" />
+  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="200" />
 </p
