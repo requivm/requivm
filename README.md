@@ -8,7 +8,7 @@
   <b>ഒ·˚</b><br>
  ꒰꒰ㅤ𝒅arcyㅤₒᵤㅤ𝒄urrentㅤ𝒂vatarㅤ𝒏ame  <br>
   ୨𖩒     ׂ ㅤㅤ𝙧eㅤ&&ㅤ𝙧dr𝟐ㅤ>>    〭  <br>
-  <img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50">
+  <img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50"> ㅤᰍ̼  ׅ  𝘮𝘢𝘪𝘯𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 ݁ ꕮ ˘
  
 </p>
 
