@@ -7,8 +7,8 @@
 
   <b>ഒ·˚</b><br>
  ꒰꒰ㅤ𝒅arcyㅤₒᵤㅤ𝒄urrentㅤ𝒂vatarㅤ𝒏ame  <br>
-  word word word word<br>
-  (  🪽  )ㅤ ♡ㅤ𝐳ombi𝐞 && 𝐜owboy 𝐦edia 𝐞𝐧joye𝐫
+  ୨𖩒   ׅ    ׂ 𝙧e && 𝙧dr𝟐 >>    〭   ⬯ <br>
+ 
 </p>
 
 WORKING ON IT 
