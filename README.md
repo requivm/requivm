@@ -19,7 +19,7 @@
 ୨𖩒 ׂ ㅤㅤ𝙧eㅤ&&ㅤ𝙧dr𝟐ㅤ>> 〭<br>
 <img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50"> ㅤᰍ̼ ㅤ𝘮𝘢𝘪𝘯𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 ݁ ꕮ ˘            
 · · ─ ·ʚ<img src="https://i.postimg.cc/NGCz3QR4/ps7p0f.webp" width="20">ɞ· ─ · ·
-<img src="https://i.postimg.cc/pTTBCnGc/okca7z.gif" width="50">
+<img src="https://i.postimg.cc/DzWrbKSF/BDo-PDFwkm-IVj-Ac-D9CA.gif" width="50">
 
 </td>
 </tr>
