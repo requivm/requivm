@@ -3,7 +3,7 @@
 </p
 
 <p>
-  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="300" align="left">
+  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170" align="left">
 
   <b>text</b><br>
   working on this<br>
