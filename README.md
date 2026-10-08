@@ -7,7 +7,7 @@
 
   <b>ഒ·˚</b><br>
  ꒰꒰ㅤ𝒅arcyㅤₒᵤㅤ𝒄urrentㅤ𝒂vatarㅤ𝒏ame  <br>
-  ୨𖩒   ׅ    ׂ 𝙧e && 𝙧dr𝟐 >>    〭   ⬯ <br>
+  ୨𖩒     ׂ ㅤㅤ𝙧eㅤ&&ㅤ𝙧dr𝟐ㅤ>>    〭   ⬯ <br>
  
 </p>
 
