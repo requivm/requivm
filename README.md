@@ -3,7 +3,7 @@
 </p
 
 <p align="center">
-  <img src="https://i.postimg.cc/pVqdmZP0/Untitled827-20261002215909.png" width="400" />
+  <img src="https://i.postimg.cc/TPBx2RX7/pony-town-JOHN-MARs-TON-C-H-dance-1-a-blinking-padded-4x.gif" width="400" />
 </p
 
 it wont go on the center im upset
