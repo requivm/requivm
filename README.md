@@ -6,7 +6,7 @@
   <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170" align="left">
 
   <b>ഒ·˚</b><br>
- ꒰꒰ㅤusingㅤ𝒄urrentㅤavatarㅤnameㅤonㅤmeㅤpreferred  <br>
+ ꒰꒰ㅤ𝒅arcyㅤₒᵤㅤ𝒄urrentㅤ𝒂vatarㅤ𝒏ame  <br>
   word word word word<br>
   word word word word
 </p>
