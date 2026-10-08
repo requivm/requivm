@@ -8,6 +8,7 @@
   <b>ഒ·˚</b><br>
  ꒰꒰ㅤ𝒅arcyㅤₒᵤㅤ𝒄urrentㅤ𝒂vatarㅤ𝒏ame  <br>
   ୨𖩒     ׂ ㅤㅤ𝙧eㅤ&&ㅤ𝙧dr𝟐ㅤ>>    〭  <br>
+  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="50">
  
 </p>
 
