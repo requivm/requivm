@@ -11,5 +11,3 @@
   <img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50"> ㅤᰍ̼ ㅤ𝘮𝘢𝘪𝘯𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 ݁ ꕮ ˘
  
 </p>
-
-WORKING ON IT 
