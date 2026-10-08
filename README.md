@@ -7,6 +7,3 @@
 </p
 
 it wont go on the center im upset
-
-<p align="center">
-also big resident evil fan even though it might not be obvious
