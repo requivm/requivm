@@ -3,11 +3,12 @@
 </p
 
 <p align="center">
-  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170" align="left">
+  <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170" style="vertical-align: middle;">
 
-  <br>
-  <b>ഒ·˚</b><br>
-  ꒰꒰ㅤ𝒄+𝒉ㅤ𝒐kayㅤ.ᐟ <img src="https://i.postimg.cc/yxR8Cvpn/tumblr-6829b83f134e8c08325abc0fbc9aefbb-f49be9f8-75.webp" width="90"><br>
-  ୨𖩒 ׂ ㅤㅤ𝙧eㅤ&&ㅤ𝙧dr𝟐ㅤ>> 〭<br>
-  <img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50"> ㅤᰍ̼ ㅤ𝘮𝘢𝘪𝘯𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 ݁ ꕮ ˘
+  <span style="display: inline-block; vertical-align: middle; text-align: center;">
+    <b>ഒ·˚</b><br>
+    ꒰꒰ㅤ𝒄+𝒉ㅤ𝒐kayㅤ.ᐟ <img src="https://i.postimg.cc/yxR8Cvpn/tumblr-6829b83f134e8c08325abc0fbc9aefbb-f49be9f8-75.webp" width="90"><br>
+    ୨𖩒 ׂ ㅤ𝙧eㅤ&&ㅤ𝙧dr𝟐ㅤ>> 〭<br>
+    <img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50"> ㅤᰍ̼ ㅤ𝘮𝘢𝘪𝘯𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 ݁ ꕮ ˘
+  </span>
 </p>
