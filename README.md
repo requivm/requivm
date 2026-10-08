@@ -5,7 +5,7 @@
 <p>
   <img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170" align="left">
 
-  <b>text</b><br>
+  <b>꒰ঌ( ᴗ͈ˬᴗ͈)໒꒱</b><br>
   working on this<br>
   as you see it<br>
   give me a sec
