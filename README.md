@@ -2,28 +2,3 @@
   <img src="https://komarev.com/ghpvc/?username=requivm&label=⠀𝓥isitor𝓼⠀⠀&color=D6D7D7&style=flat-square" width="120"> <img src="https://i.postimg.cc/Qxs3M8H0/2g893z.gif" width="35">
 </p>
 </p>
-
-
-<div align="center">
-
-<table align="center">
-<tr>
-<td valign="middle">
-
-<img src="https://i.postimg.cc/XYyQS3xx/gif-color-changed.gif" width="170">
-
-</td>
-<td align="center" valign="middle">
-
-<b> ഒ·˚ </b><br> 
-꒰꒰ㅤ𝒄+𝒉ㅤ𝒐kayㅤ.ᐟ <img src="https://i.postimg.cc/yxR8Cvpn/tumblr-6829b83f134e8c08325abc0fbc9aefbb-f49be9f8-75.webp" width="80"><br>
-୨𖩒 ׂ ㅤㅤ𝙧e⠀,⠀𝙧dr𝟐⠀,⠀𝒔pㅤ>> 〭<br>
-<img src="https://i.postimg.cc/1R7tnNZR/61r9dw.gif" width="50"> ㅤᰍ̼ ㅤ𝘮𝘢𝘪𝘯𝘭𝘺 𝘰𝘧𝘧𝘵𝘢𝘣 ݁ ꕮ ˘            
-· · ─ ·ʚ<img src="https://i.postimg.cc/NGCz3QR4/ps7p0f.webp" width="20">ɞ· ─ · ·                
-<img src="https://i.postimg.cc/sx8yxSqx/gif-color-changed-(1).gif" width="170">
-
-</td>
-</tr>
-</table>
-
-</div>
