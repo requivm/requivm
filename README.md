@@ -4,5 +4,5 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/d3Wdd4Nf/Untitled950-20261113162604.webp" width="120"> 
+  <img src="https://i.postimg.cc/d3Wdd4Nf/Untitled950-20261113162604.webp" width="220"> 
 </p>
